@@ -1,2 +1,2 @@
-# artin88.github.io
+# 学习+练习
 study &amp; practise
